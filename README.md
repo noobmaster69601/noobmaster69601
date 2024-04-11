@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...HTML CSS
 - 💞️ I’m looking to collaborate on ...A WEBSITE PROJECT
 - 📫 How to reach me ...IDK
-- 😄 Pronouns: ...MALE MAN HIM HE
+- 😄 Pronouns: ...MALE MAN HIM HE BRO DOUDE A RANDOM GUY
 - ⚡ Fun fact: ...I FARTED
 
 <!---
